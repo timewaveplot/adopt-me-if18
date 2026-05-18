@@ -1,4 +1,4 @@
-#  
+#  Exclusivo escape tsunami for brainrots script é o melhor escape tsunami for brainrots script com resistência ilimitada e sem colisão. Seguro, confiável e otimizado para máximo
 
 
 
